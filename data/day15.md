@@ -11,6 +11,6 @@ I checked out of the hostel in Pompeii and planned to spend the day enjoying Nap
 ## 14:36
 ### Cats!
 
-I few hours later I made my way to the new hostel. I was very happy to find out that this hostel is home to 4 absolutely adorable cats that roam free. I had a short nap after checking in and woke up to find one of the cats on the end of my bed looking very confused at the ceiling fan and it’s reflection in the mirror on the wall. The cats are all so incredibly friendly and must be very used to travellers coming in and out so very much enjoy the attention. I played with this cat for a very long time and in the process also got to know a few of my human doom mates. 
+I few hours later I made my way to the new hostel. I was very happy to find out that this hostel is home to 4 absolutely adorable cats that roam free. I had a short nap after checking in and woke up to find one of the cats on the end of my bed looking very confused at the ceiling fan and it’s reflection in the mirror on the wall. The cats are all so incredibly friendly and must be very used to travellers coming in and out so very much enjoy the attention. I played with this cat for a very long time and in the process also got to know a few of my human dorm mates. 
 
 ![Cat on a bench](https://raw.githubusercontent.com/benknight135/thirty-knights-posts/main/data/day15/cat.jpeg)
