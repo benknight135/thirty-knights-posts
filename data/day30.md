@@ -1,9 +1,7 @@
 # Day 30: The Final Day 
-## 2022/10/22 09:48
+## 2022/10/22 22:46
 
-## 09:48
-### Lunch by the Louvre
+## 22:46
+### 
 
-
-
-![Burger](https://raw.githubusercontent.com/benknight135/thirty-knights-posts/main/data/day29/burger.jpeg)
+Today is the last day of my trip around Europe! I hopped over to Lille in the morning from Paris where I will be getting the Eurostar later on.
